@@ -43,7 +43,7 @@ directed at children under 13.
 
 ## Contact
 
-Questions or concerns: jakob.zech@uni-heidelberg.de
+Questions or concerns: timerpomo@gmail.com
 
 ## Changes to this policy
 
